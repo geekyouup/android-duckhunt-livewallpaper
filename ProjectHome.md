@@ -1,0 +1,1 @@
+Live Wallpaper with interactive duck shooting
